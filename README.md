@@ -1,2 +1,2 @@
-# Nicoleta-Denisa.github.io
+# nicoleta-denisa.github.io
 Profile for me!
